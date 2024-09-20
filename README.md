@@ -2,4 +2,5 @@
 
 Meu nome è *Maria fernanda*
 
-Atualmente estudo no Colegio Civico Militar João xxiii
+No momento sou estudante no Colegio Civico Militar João xxiii
+minha idade atual é 16 anos 
