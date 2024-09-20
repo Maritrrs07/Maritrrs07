@@ -1,6 +1,6 @@
 ## _Boas vindas ao meu perfil_ ⭐
 
-Meu nome è *Maria fernanda*, aqui irei compartilhar os meus projetos 
+Meu nome è *Maria fernanda*, aqui irei compartilhar os meus projetos. 
 
 No momento sou estudante no Colegio Civico Militar João xxiii
 
