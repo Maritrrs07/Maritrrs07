@@ -4,5 +4,7 @@ Meu nome è *Maria fernanda*
 
 No momento sou estudante no Colegio Civico Militar João xxiii
 
-Minha idade atual é 16 anos 
+Atualmente tenho 16 anos e estou cursando o ensino medio 
+
+Para entrar em contato : maria.ipanema.torres@escola.pr.gov.br
 
